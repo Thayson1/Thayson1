@@ -5,12 +5,12 @@
 
 Aqui estão algumas ideias para você começar:
 
-- 🔭 Atualmente estou trabalhando em 
-- 🌱 Atualmente estou aprendendo...
-- 👯 Procuro colaborar em ...
-- 🤔 Estou procurando ajuda com ...
-- 💬 Pergunte-me sobre ...
-- 📫 Como entrar em contato comigo: ...
-- 😄 Pronomes: Ne/gao
-- ⚡ Curiosidade: ...
+- 🔭 Atualmente estou estudando
+- 🎮 Jogos favoritos: Terraria, Hollow Knight
+- 🤔 Filmes favoritos: O palido olho azul/Trem-Bala
+- 👾 Serie favorita: The boys
+- 🎧 Musica favorita: Devil in I
+- 📫 Como entrar em contato comigo: thayson.santos@escola.pr.gov.br
+- 👻 Pronomes: Ne/gao
+- ⚡ Curiosidade: 
 
